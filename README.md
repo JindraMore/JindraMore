@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @JindraMore
 - 👀 I’m interested in Fortnite
-- 🌱 I’m currently learning Fortnite building and aim
+- 🌱 I’m currently learning Nothing
 - 💞️ I’m looking to collaborate on Fortnite crative maps
 - 📫 How to reach me? Don't reach me!
 - 😄 Pronouns: She/It
